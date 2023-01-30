@@ -1,4 +1,4 @@
-## 联系我
+## [联系我](https://github.com/ncstlifan/ncstlifan/blob/main/resource/contact.md)
 
 
 
